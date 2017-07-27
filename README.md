@@ -1,3 +1,0 @@
-# hello-world
-SYARY
-LETS EDIT THIS SHITTTT
